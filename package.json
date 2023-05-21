@@ -1,0 +1,15 @@
+{
+    "name": "the-power-of-mindful-leadership-how-to-lead-with-clarity-purpose-and-compassion",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
