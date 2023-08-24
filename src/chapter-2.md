@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Psychology of Mindful Leadership
-=============================================================
 
 Understanding the psychology of mindful leadership is essential for cultivating effective leadership skills and strategies. In this chapter, we will explore the factors that impact mindful leadership effectiveness, common barriers to mindful leadership, and the role of mindfulness in enhancing leadership.
 

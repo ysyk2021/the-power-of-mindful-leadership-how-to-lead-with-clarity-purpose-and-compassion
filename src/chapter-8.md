@@ -1,5 +1,3 @@
-Chapter 8: Managing Change and Transition
-=========================================
 
 Change and transition are inevitable in today's rapidly changing world, and leaders must be equipped to manage them effectively. In this chapter, we will explore the impact of change and transition on leadership and provide strategies for managing them.
 

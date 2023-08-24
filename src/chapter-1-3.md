@@ -1,5 +1,3 @@
-The Challenges and Opportunities of Leading Mindfully
-====================================================================================================
 
 Mindful leadership involves leading with clarity, purpose, and compassion. In this chapter, we will explore the challenges and opportunities of leading mindfully.
 

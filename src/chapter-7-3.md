@@ -1,5 +1,3 @@
-Encouraging Creativity and Innovation
-===================================================================================
 
 Effective leadership involves promoting growth and development among team members. By encouraging creativity and innovation, leaders can foster a culture of continuous learning and improvement that drives success. In this chapter, we will explore strategies for promoting growth and development through creativity and innovation.
 
@@ -35,5 +33,4 @@ Conclusion
 ----------
 
 Promoting growth and development through creativity and innovation is essential for effective leadership. By creating a culture of psychological safety, encouraging collaboration and diversity of thought, providing opportunities for learning and growth, and embracing change and adaptability, leaders can foster a work environment that drives success. These strategies can help leaders build a more skilled, motivated, and innovative workforce that is better equipped to handle complex challenges and achieve greater success.
-
 

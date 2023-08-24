@@ -1,5 +1,3 @@
-Historical Perspectives on Leadership Theory and Practice
-========================================================================================================
 
 Leadership theory and practice have evolved over centuries, with different perspectives and approaches emerging in response to changing cultural, social, and economic contexts. In this chapter, we will explore the historical perspectives on leadership theory and practice, providing a foundation for understanding mindful leadership.
 

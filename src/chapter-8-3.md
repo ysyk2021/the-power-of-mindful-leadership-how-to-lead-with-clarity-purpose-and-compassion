@@ -1,5 +1,3 @@
-Building Resilience and Managing Stress during Times of Transition
-=============================================================================================================
 
 Managing change and transition can be a stressful and challenging experience for both leaders and their team members. In this chapter, we will explore strategies for building resilience and managing stress during times of transition.
 

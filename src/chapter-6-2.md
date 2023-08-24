@@ -1,5 +1,3 @@
-Encouraging Open Communication and Constructive Feedback
-==========================================================================================================
 
 Fostering a positive work environment is essential for promoting engagement, satisfaction, and well-being within the workplace. One critical aspect of creating such an environment is encouraging open communication and constructive feedback.
 

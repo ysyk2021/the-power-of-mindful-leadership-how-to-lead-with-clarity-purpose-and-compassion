@@ -1,5 +1,3 @@
-Chapter 5: Leading with Compassion and Empathy
-==============================================
 
 Leading with compassion and empathy is essential for cultivating a culture of trust, collaboration, and success. In this chapter, we will explore the benefits of leading with compassion and empathy and provide strategies for developing effective leadership skills in these areas.
 

@@ -1,5 +1,3 @@
-Communicating Vision and Values Effectively
-========================================================================================
 
 Communicating vision and values effectively is essential for leading with clarity and purpose. A compelling vision aligned with the core values of the organization promotes engagement, motivation, and a shared sense of purpose among team members.
 

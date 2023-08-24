@@ -1,4 +1,3 @@
-# Introduction
 
 In today's fast-paced and constantly changing business environments, the need for mindful leadership has never been greater. Mindful leadership is about leading with awareness, compassion, and wisdom – not just achieving results and profits. It's about creating a culture of mindfulness and well-being that can drive positive change and growth for both individuals and organizations.
 

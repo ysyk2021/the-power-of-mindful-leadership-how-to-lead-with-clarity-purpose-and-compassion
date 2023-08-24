@@ -1,5 +1,3 @@
-Chapter 3: Cultivating Mindfulness for Leadership
-=================================================
 
 Cultivating mindfulness and awareness is essential for effective leadership, as it promotes clarity, focus, and compassion. In this chapter, we will explore the benefits of cultivating mindfulness and awareness in leadership and provide strategies for developing effective leadership skills in these areas.
 

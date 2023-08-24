@@ -1,5 +1,3 @@
-Building Self-awareness and Emotional Intelligence
-======================================================================================================
 
 Mindful leadership begins with cultivating self-awareness and emotional intelligence. By developing these skills, leaders can better understand their own thoughts, feelings, and behaviors, as well as those of their team members. In this chapter, we will explore strategies for building self-awareness and emotional intelligence through mindfulness practices.
 

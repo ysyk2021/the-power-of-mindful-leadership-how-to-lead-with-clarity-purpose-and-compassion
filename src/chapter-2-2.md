@@ -1,5 +1,3 @@
-Identifying Common Barriers to Mindful Leadership
-================================================================================================================
 
 While mindful leadership can be a powerful approach to leadership, there are also common barriers that can prevent individuals from fully embracing this mindset. In this chapter, we will identify some of the most common barriers to mindful leadership.
 

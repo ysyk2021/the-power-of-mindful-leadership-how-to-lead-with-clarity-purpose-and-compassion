@@ -1,5 +1,3 @@
-Defining Mindful Leadership and Its Importance in Modern Organizations
-=====================================================================================================================
 
 Mindful leadership is becoming increasingly recognized as an essential approach to effective leadership in modern organizations. In this chapter, we will define mindful leadership and explore its importance in today's world.
 

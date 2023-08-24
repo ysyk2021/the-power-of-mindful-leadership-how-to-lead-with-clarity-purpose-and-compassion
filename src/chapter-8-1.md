@@ -1,5 +1,3 @@
-Understanding the Impact of Change and Transition on Leadership
-==========================================================================================================
 
 Change and transition have a significant impact on leadership, influencing how leaders approach their responsibilities and interact with their team members. In this chapter, we will explore the impact of change and transition on leadership.
 

@@ -1,5 +1,3 @@
-Using Active Listening to Build Rapport and Understanding
-==========================================================================================================
 
 Compassion and empathy are essential components of mindful leadership. Leaders who practice compassion and empathy are better able to understand and connect with their team members, build trust and rapport, and create a positive work environment. In this chapter, we will explore how active listening can help leaders lead with compassion and empathy.
 

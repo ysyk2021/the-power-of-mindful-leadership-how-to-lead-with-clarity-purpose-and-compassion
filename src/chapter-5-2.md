@@ -1,5 +1,3 @@
-Understanding and Valuing Diverse Perspectives and Experiences
-==============================================================================================================
 
 Leading with compassion and empathy is essential for effective leadership, as it promotes connection, understanding, and inclusivity within the workplace. One critical aspect of leading with compassion and empathy is understanding and valuing diverse perspectives and experiences.
 

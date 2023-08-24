@@ -1,5 +1,3 @@
-Developing Effective Leadership Skills through Compassion and Empathy
-=====================================================================================================================
 
 Leading with compassion and empathy is not only essential for promoting a positive workplace culture, but it also helps to develop effective leadership skills. In this chapter, we will explore how leaders can develop these skills through compassion and empathy.
 

@@ -1,5 +1,3 @@
-Setting Clear Goals and Expectations
-=================================================================================
 
 Leading with clarity and purpose is essential for effective leadership, as it provides a roadmap for success and promotes a sense of direction and focus. One critical aspect of leading with clarity and purpose is setting clear goals and expectations for oneself and one's team members.
 

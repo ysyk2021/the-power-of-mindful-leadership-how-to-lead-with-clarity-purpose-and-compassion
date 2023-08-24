@@ -1,5 +1,3 @@
-Creating a Culture of Authenticity and Trust
-==============================================================================================
 
 Creating a positive work environment is key to promoting engagement, satisfaction, and well-being within the workplace. One critical aspect of creating such an environment is fostering a culture of authenticity and trust.
 
