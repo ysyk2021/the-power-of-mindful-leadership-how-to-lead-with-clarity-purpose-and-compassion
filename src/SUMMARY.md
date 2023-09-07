@@ -34,3 +34,4 @@
   - [Building resilience and managing stress during times of transition](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

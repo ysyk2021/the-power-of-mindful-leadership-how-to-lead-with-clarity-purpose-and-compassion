@@ -10,3 +10,7 @@ Throughout the book, we'll also address some of the common challenges and obstac
 Whether you're a CEO, a middle manager, or an emerging leader, this book has something for you. By embracing the power of mindful leadership, you can create a more engaged, motivated, and productive workforce that can drive positive change and growth for your organization. So let's get started on the journey to leading with clarity, purpose, and compassion.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
