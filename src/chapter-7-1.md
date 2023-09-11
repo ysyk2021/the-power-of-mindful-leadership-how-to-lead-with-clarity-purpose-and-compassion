@@ -1,5 +1,4 @@
-Chapter 15: Developing Strategies for Promoting Growth and Development Among Team Members
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of promoting growth and development among team members as a mindful leader. We will discuss strategies and practices that empower leaders to create a supportive environment for continuous learning, skill development, and personal growth within their teams.
 

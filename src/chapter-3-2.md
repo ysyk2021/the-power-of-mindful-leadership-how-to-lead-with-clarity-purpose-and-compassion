@@ -1,5 +1,4 @@
-Chapter 6: Practicing Meditation, Deep Breathing, and Other Mindfulness Techniques
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the power of mindfulness techniques such as meditation and deep breathing in cultivating mindful leadership. We will explore how these practices enhance focus, reduce stress, promote self-awareness, and foster overall well-being for leaders.
 

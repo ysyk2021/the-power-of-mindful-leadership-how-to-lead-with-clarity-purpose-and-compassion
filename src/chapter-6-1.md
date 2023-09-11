@@ -1,5 +1,4 @@
-Chapter 7: Developing Strategies for Fostering a Positive Work Environment
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering a positive work environment and how mindful leadership can play a key role in creating such an environment. We will discuss strategies and techniques that leaders can employ to cultivate positivity, enhance employee well-being, and promote a culture of collaboration and growth.
 

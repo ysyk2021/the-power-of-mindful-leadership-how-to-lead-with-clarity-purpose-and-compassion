@@ -1,5 +1,4 @@
-Chapter 8: Developing Strategies for Managing Change and Uncertainty
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing strategies for managing change and uncertainty as a mindful leader. We will discuss how embracing change, cultivating resilience, fostering adaptability, and promoting effective communication can empower leaders to navigate these challenges with clarity, purpose, and compassion.
 

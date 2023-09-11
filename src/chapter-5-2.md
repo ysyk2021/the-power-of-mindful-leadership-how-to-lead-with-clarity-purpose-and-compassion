@@ -1,5 +1,4 @@
-Chapter 9: Understanding and Valuing Diverse Perspectives and Experiences
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of understanding and valuing diverse perspectives and experiences as a mindful leader. We will discuss strategies and practices that enable leaders to embrace diversity, foster inclusivity, and harness the power of varied viewpoints within their teams and organizations.
 

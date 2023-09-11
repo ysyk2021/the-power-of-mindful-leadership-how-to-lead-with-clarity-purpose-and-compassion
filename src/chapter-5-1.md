@@ -1,5 +1,4 @@
-Chapter 7: Developing Effective Leadership Skills through Compassion and Empathy
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative power of compassion and empathy in developing effective leadership skills. We will discuss how mindful leaders can cultivate these qualities to build strong relationships, enhance communication, and inspire their teams towards success.
 

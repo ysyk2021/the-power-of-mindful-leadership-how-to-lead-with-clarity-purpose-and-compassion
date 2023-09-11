@@ -1,5 +1,4 @@
-Chapter 9: Communicating Vision and Values Effectively
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of communicating vision and values effectively in mindful leadership. We will discuss the role of clear communication in aligning individuals towards a common purpose, inspiring motivation, and fostering a cohesive and purpose-driven organization.
 

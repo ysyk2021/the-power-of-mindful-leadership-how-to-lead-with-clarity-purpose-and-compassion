@@ -1,5 +1,4 @@
-Chapter 8: Identifying Common Barriers to Mindful Leadership
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common barriers that can hinder mindful leadership. We will examine internal and external factors that may impede the cultivation and practice of mindful leadership and discuss strategies to overcome these barriers.
 

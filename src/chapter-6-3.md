@@ -1,5 +1,4 @@
-Chapter 5: Creating a Culture of Authenticity and Trust
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a culture of authenticity and trust within an organization. We will delve into the ways mindful leadership can foster an environment where individuals feel safe to be their true selves, express their ideas, and build strong relationships based on trust.
 

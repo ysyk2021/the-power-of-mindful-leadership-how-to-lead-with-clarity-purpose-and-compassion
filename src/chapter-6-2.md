@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Open Communication and Constructive Feedback
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Mindful Leadership: How to Lead with Clarity, Purpose, and Compassion," we will explore the importance of encouraging open communication and constructive feedback in mindful leadership. We will delve into strategies for fostering an environment where team members feel comfortable expressing their thoughts and ideas, as well as the significance of providing and receiving feedback constructively. By encouraging open communication and constructive feedback, leaders can enhance collaboration, promote growth, and foster a culture of trust and transparency.
 

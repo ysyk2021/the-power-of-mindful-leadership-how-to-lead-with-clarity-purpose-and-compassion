@@ -1,5 +1,4 @@
-Chapter 10: Building Resilience and Managing Stress During Times of Transition
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building resilience and managing stress during times of transition as a mindful leader. We will discuss strategies for cultivating resilience, creating a supportive environment, promoting self-care, and fostering emotional well-being to navigate through these challenging periods with clarity, purpose, and compassion.
 

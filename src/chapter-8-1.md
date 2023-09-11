@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Impact of Change and Transition on Leadership
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that change and transition can have on leadership. We will explore how leaders can navigate these challenges by understanding their effects, developing resilience, fostering adaptability, and promoting effective communication to lead with clarity, purpose, and compassion.
 

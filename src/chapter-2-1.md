@@ -1,5 +1,4 @@
-Chapter 13: Recognizing the Different Factors that Impact Mindful Leadership Effectiveness
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various factors that impact the effectiveness of mindful leadership. We will dive into the internal and external factors that influence how leaders can cultivate and sustain their mindful leadership practices to achieve optimal outcomes.
 

@@ -1,5 +1,4 @@
-Chapter 12: Using Active Listening to Build Rapport and Understanding
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of active listening as a crucial skill for mindful leaders. We will discuss how active listening fosters rapport, enhances understanding, and strengthens relationships within teams and organizations.
 

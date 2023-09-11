@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Role of Mindfulness in Enhancing Leadership
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound role mindfulness plays in enhancing leadership effectiveness. We will delve into how practicing mindfulness cultivates self-awareness, emotional intelligence, and resilience, enabling leaders to make informed decisions, build meaningful relationships, and create a positive work environment.
 

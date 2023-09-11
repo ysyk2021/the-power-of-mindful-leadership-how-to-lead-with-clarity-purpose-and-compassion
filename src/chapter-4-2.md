@@ -1,5 +1,4 @@
-Chapter 11: Setting Clear Goals and Expectations
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting clear goals and expectations in mindful leadership. We will discuss how clear goal-setting enhances focus, promotes accountability, and fosters a culture of continuous improvement and achievement.
 
